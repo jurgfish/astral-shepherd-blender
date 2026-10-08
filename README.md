@@ -1,4 +1,4 @@
-ICG CHICAGHOUL 2026 (FROM BEYOND THE STARS) GAME JAM
+ICG CHICAGHOUL (FROM BEYOND THE STARS) 2026 GAME JAM
 
-astral shepherd (art)
-by jurgfish
+astral shepherd (art) by jurgfish
+
